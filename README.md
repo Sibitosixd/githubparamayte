@@ -1,2 +1,0 @@
-# githubparamayte
-github para mayte
